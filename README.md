@@ -2,6 +2,8 @@
 
 Nekopoi APK v2.5.4.2 adalah aplikasi yang populer di kalangan penggemar anime dan konten dewasa. Dengan antarmuka yang ramah pengguna dan koleksi konten yang beragam, aplikasi ini memungkinkan pengguna untuk menikmati berbagai anime dan video menarik secara gratis. Versi terbaru ini menghadirkan berbagai peningkatan dan fitur baru yang membuat pengalaman menonton semakin menyenangkan.
 
+Download: [Nekopoi APK](https://gamemodfree.com/nekopoi-apk)
+
 Fitur Utama Nekopoi APK v2.5.4.2
 Koleksi Konten yang Luas
 Aplikasi ini menawarkan ribuan judul anime dan video, termasuk kategori yang berbeda untuk memenuhi selera semua pengguna.
